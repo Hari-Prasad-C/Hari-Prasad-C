@@ -1,4 +1,0 @@
-- Hi, I’m @Hari-Prasad-C
-- I’m interested in Marketing 
-- I’m looking to collaborate on diagnostics 
-- How to reach me : 7013512331
